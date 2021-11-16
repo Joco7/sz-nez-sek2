@@ -1,1 +1,0 @@
-# sz-nez-sek2
